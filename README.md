@@ -14,6 +14,17 @@
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(11).png)
 (7)
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(12).png)
+# 12
+(1)
+![Alt Text]()
+(3)
+![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(14).png)
+(5)
+![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(15).png)
+(6)
+![Alt Text]( https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(18).png)
+(7)
+![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(17).png)
 # Resep
 (Pisang Rebus)
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(5).png)
