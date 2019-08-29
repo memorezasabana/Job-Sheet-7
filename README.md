@@ -20,7 +20,7 @@
 (Sandwich Telur)
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(9).png)
 (Telur Rebus)
-![Alt Text]()
+![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(10).png)
 # Pembayaran Tagihan listrik
 (Golongan C)
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(1).png)
