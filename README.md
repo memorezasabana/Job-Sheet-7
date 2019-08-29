@@ -16,7 +16,7 @@
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(12).png)
 # 12
 (1)
-![Alt Text]()
+![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(13).png)
 (3)
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-29%20(14).png)
 (5)
