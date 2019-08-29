@@ -5,4 +5,4 @@
 (5)
 ![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-23%20(1).png)
 (7)
-![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-23%20(2).png
+![Alt Text](https://github.com/memorezasabana/Job-Sheet-7/blob/master/2019-08-23%20(2).png)
